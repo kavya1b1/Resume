@@ -1,2 +1,2 @@
 
-[Kavya_AI-ML.pdf](https://github.com/user-attachments/files/31152290/Kavya_AI-ML.pdf)
+[ Kavya_Resume .pdf](https://github.com/user-attachments/files/32496832/Kavya_Resume.pdf)
